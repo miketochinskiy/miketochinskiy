@@ -1,6 +1,6 @@
 # Michael Tochinskiy
 
-> That which does not kill us makes us stronger. -Friedrich Nietzsche
+> It is not death that a man should fear, but he should fear never beginning to live. - Marcus Aurelius
 
 ![Coffee](https://www.quirkbooks.com/wp-content/uploads/2015/04/coffee20writing.gif) 
 
